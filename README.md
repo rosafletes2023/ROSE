@@ -1,0 +1,2 @@
+# ROSE
+Word OFIMATICA TAREA
